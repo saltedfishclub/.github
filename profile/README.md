@@ -1,4 +1,3 @@
-*Comes from every corner of the world, Codes anything for the world.*  
-And this is, SaltedFish Club.
+They're too lazy to leave descriptions.
 
 [Contact Us](mailto://sfclub@googlegroups.com)
